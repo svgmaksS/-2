@@ -4,4 +4,4 @@
 
 Вибір силової групи:
 https://www.ecalc.ch/
-https://docs.google.com/document/d/1dNWwCt7UvoPsY2Raoadzta3nSZGZNtn6/edit
+https://docs.google.com/document/d/1dNWwCt7UvoPsY2Raoadzta3nSZGZNtn6/edit?usp=sharing&ouid=101947596629251669046&rtpof=true&sd=true
